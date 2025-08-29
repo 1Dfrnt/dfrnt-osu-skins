@@ -18,4 +18,4 @@
 
 # **[Aristia(Edit)](https://skins.osuck.net/skins/485?v=0)**
 
-![Image](https://github.com/user-attachments/assets/6e011b9c-7d02-4591-b693-ebc2550e6dc1)
+![Image](https://github.com/user-attachments/assets/d125aa11-31c1-4352-aacd-7ea40b57deb9)
