@@ -28,3 +28,7 @@ last updated <b>08/20/2025</b>
 # **[Aristia(Edit)](https://skins.osuck.net/skins/485?v=0)**
 
 ![Image](https://github.com/user-attachments/assets/d125aa11-31c1-4352-aacd-7ea40b57deb9)
+
+# **[Nekomiya Mana v1.2 ](https://skins.osuck.net/skins/4398?v=0)**
+
+<img width="1920" height="1080" alt="Image" src="https://github.com/user-attachments/assets/eb44ca53-e1b3-4940-94fe-71e9504b91e4" />
