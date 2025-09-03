@@ -1,5 +1,11 @@
 # dfrnt-osu-skins
 
+<p align="center">
+<a href="https://osu.ppy.sh/users/36222532">
+  <img src="https://a.ppy.sh/36222532"  
+       width="150"
+       height="150"></a><br></br>
+
 # **[cookie v2.6](https://drive.google.com/drive/folders/1HyOZzi_8LRni496XUoXb4OjvmbRpH3TW)**
 
 ![Image](https://github.com/user-attachments/assets/c0009fa5-1798-4bd1-9e25-695cfe2b0c2b)
