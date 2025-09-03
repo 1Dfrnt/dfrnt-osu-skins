@@ -6,7 +6,7 @@
        width="150"
        height="150"></a>
 <br>
-last updated <b>08/20/2025</b>
+last updated <b>9/3/2025</b>
 </p>
 
 # **[cookie v2.6](https://drive.google.com/drive/folders/1HyOZzi_8LRni496XUoXb4OjvmbRpH3TW)**
