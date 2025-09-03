@@ -4,9 +4,9 @@
 <a href="https://osu.ppy.sh/users/36222532">
   <img src="https://a.ppy.sh/36222532"  
        width="150"
-       height="150"></a><br></br>
+       height="150"></a>
 <br>
-last updated <b>8/20/2025</b>
+last updated <b>08/20/2025</b>
 </p>
 
 # **[cookie v2.6](https://drive.google.com/drive/folders/1HyOZzi_8LRni496XUoXb4OjvmbRpH3TW)**
