@@ -17,14 +17,7 @@ last updated <b>9/3/2025</b>
 
 ![Image](https://github.com/user-attachments/assets/5e3e1729-f9ab-4862-bfd4-d01ec514b3fc)
 
-# **[Flashlight](https://www.mediafire.com/file/xvsclvttak8x63a/FL.osk/file)**
-
-![Image](https://github.com/user-attachments/assets/92901508-2b43-4697-aad7-369d523b02ca)
-
 # **[Vaxei Blue version](https://skins.osuck.net/skins/1648?v=0)**
 
 ![Image](https://github.com/user-attachments/assets/5d2bf517-b965-469d-b91a-59b033dda9ef)
 
-# **[Nekomiya Mana v1.2 ](https://skins.osuck.net/skins/4398?v=0)**
-
-<img width="1920" height="1080" alt="Image" src="https://github.com/user-attachments/assets/eb44ca53-e1b3-4940-94fe-71e9504b91e4" />
