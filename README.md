@@ -9,15 +9,15 @@
 last updated <b>9/3/2025</b>
 </p>
 
-# **[cookie v2.6](https://drive.google.com/drive/folders/1HyOZzi_8LRni496XUoXb4OjvmbRpH3TW)**
+# **[Aristia(Edit)+trail](https://skins.osuck.net/skins/863)**
 
-![Image](https://github.com/user-attachments/assets/c0009fa5-1798-4bd1-9e25-695cfe2b0c2b)
+![Image](https://skins.osuck.net/images/screenshots/f023275baf7f83b81ad25ad4d5ff7e9a.webp)
 
 # **[zoomer mix v1.0 ](https://skins.osuck.net/skins/2919?v=0)**
 
 ![Image](https://github.com/user-attachments/assets/5e3e1729-f9ab-4862-bfd4-d01ec514b3fc)
 
-# **[Vaxei Blue version](https://skins.osuck.net/skins/1648?v=0)**
+# **[Rafis 2018-03-26 HDDT](https://skins.osuck.net/skins/166)**
 
-![Image](https://github.com/user-attachments/assets/5d2bf517-b965-469d-b91a-59b033dda9ef)
+![Image](https://skins.osuck.net/images/screenshots/db75a8a3d83232c61447c6b45008895b.webp)
 
