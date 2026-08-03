@@ -25,6 +25,10 @@ last updated <b>9/3/2025</b>
 
 <img width="1366" height="768" alt="screenshot215" src="https://github.com/user-attachments/assets/0f8b2f08-dc0b-4dc2-b996-71e17d58ae08" />
 
+# **[Aristia rgby](https://skins.osuck.net/skins/4394)**
+
+<img width="1920" height="1080" alt="81a506fc4da4ab2b16768fcc5b33b329" src="https://github.com/user-attachments/assets/54f8840d-e09b-4236-8a83-65288f8dde10" />
+
 
 
 
