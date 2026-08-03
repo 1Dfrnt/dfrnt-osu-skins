@@ -19,5 +19,6 @@ last updated <b>9/3/2025</b>
 
 # **[Aristia(Edit)+trail](https://skins.osuck.net/skins/863)**
 
-![Image]()
+<img width="1920" height="1080" alt="f023275baf7f83b81ad25ad4d5ff7e9a" src="https://github.com/user-attachments/assets/912e2c4e-fd3d-4b2f-98ec-e1b26cf4f805" />
+
 
