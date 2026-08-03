@@ -11,7 +11,7 @@ last updated <b>9/3/2025</b>
 
 # **[Azer 2018-06-03 azer8dusk](https://osuskins.net/skin/kQv6lBQ)**
 
-![Image]()
+<img width="3840" height="2160" alt="kQv6lBQ" src="https://github.com/user-attachments/assets/b81093f3-5faf-4c7f-9d42-a0f5b5a53566" />
 
 # **[zoomer mix v1.0 ](https://skins.osuck.net/skins/2919?v=0)**
 
