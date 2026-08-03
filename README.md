@@ -21,4 +21,10 @@ last updated <b>9/3/2025</b>
 
 <img width="1920" height="1080" alt="f023275baf7f83b81ad25ad4d5ff7e9a" src="https://github.com/user-attachments/assets/912e2c4e-fd3d-4b2f-98ec-e1b26cf4f805" />
 
+# **[Komi shouko](https://drive.google.com/file/d/1KD_zvIgLdwAFg-k-Fxp0ZYU0DTOEXOFX/view?usp=sharing)**
+
+<img width="1366" height="768" alt="screenshot215" src="https://github.com/user-attachments/assets/0f8b2f08-dc0b-4dc2-b996-71e17d58ae08" />
+
+
+
 
