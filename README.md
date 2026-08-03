@@ -6,7 +6,7 @@
        width="150"
        height="150"></a>
 <br>
-last updated <b>9/3/2025</b>
+last updated <b>8/3/2026</b>
 </p>
 
 # **[Azer 2018-06-03 azer8dusk](https://osuskins.net/skin/kQv6lBQ)**
